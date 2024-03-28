@@ -2,7 +2,7 @@
 - 👀 We're interested in teaching and sharing ideas
 - 🌱 We're currently learning new methods to teach
 - 💞️ We're looking to collaborate on anything tech related
-- 📫 How to reach me https://academy.florenzo.com.ng
+- 📫 How to reach Us https://academy.florenzo.com.ng
 - 😄 Pronouns: We, They and Them
 - ⚡ Fun fact: Florenzo Academy is a place where you learn by doing!
 
